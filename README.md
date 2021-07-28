@@ -14,3 +14,12 @@ Work with individuals with special needs!
 Get paid to have fun, play games, hang out, and take them out in the community!
 Evening and weekend hours.
 Please call 718-535-1912
+
+
+
+
+9 year old boy with special needs is looking for someone to take him to shul on shabbos in Midwood Avenue S area
+Get paid to go to shul!! Talk to him, walk with him, daven with him.
+Please call 718-535-1912
+
+
