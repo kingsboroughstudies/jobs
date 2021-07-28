@@ -21,8 +21,14 @@ Please call 718-535-1912
 
 ## Law
 
-
-
 PARALEGAL/EDITING P/T. Work
 from home. Email: aslsg@aol.com.
 Text 646-629-2308
+
+
+## Office
+
+Counterperson/Office work F/T for
+busy car rental/body shop. Drivers
+license a must. Text 718-208-8286 or
+Email: abd67912@gmail.com
