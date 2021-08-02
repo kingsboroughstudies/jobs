@@ -26,6 +26,14 @@ Get paid to have fun, play games, hang out, and take them out in the community!
 Evening and weekend hours.
 Please call 718-535-1912
 
+
+
+
+Looking for someone to work one on one with a nice frum guy in Boro Park on Sundays. $20 an hour to keep him company, take walks and socialize with him. For more info please contact SSchwedelson@hasccenter.org
+
+
+
+
 ## Law
 
 PARALEGAL/EDITING P/T. Work
