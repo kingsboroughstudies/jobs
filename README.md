@@ -19,6 +19,13 @@ Please call 718-535-1912
 Get paid to go to shul!! Talk to him, walk with him, daven with him.
 Please call 718-535-1912
 
+
+Part time positions available in all 5 boroughs.
+Work with individuals with special needs!
+Get paid to have fun, play games, hang out, and take them out in the community!
+Evening and weekend hours.
+Please call 718-535-1912
+
 ## Law
 
 PARALEGAL/EDITING P/T. Work
