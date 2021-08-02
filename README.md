@@ -47,3 +47,10 @@ Counterperson/Office work F/T for
 busy car rental/body shop. Drivers
 license a must. Text 718-208-8286 or
 Email: abd67912@gmail.com
+
+
+## Marketing 
+
+MARKETING COORDINATOR
+
+BP accounting firm seeking a F/T Marketing Coordinator. Will work on a wide variety of projects, manage designers, artists, & vendors. Must be familiar with social media platforms and related programs. 3+ years’ experience. Email resume to jobstofill2020@gmail.com, Subject: Marketing Coordinator
