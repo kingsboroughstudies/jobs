@@ -49,6 +49,9 @@ license a must. Text 718-208-8286 or
 Email: abd67912@gmail.com
 
 
+
+Busy BP office seeking F/T female entry level employee. Good pay. Will train. Email Resume slcpny207@gmail.com
+
 ## Marketing 
 
 MARKETING COORDINATOR
