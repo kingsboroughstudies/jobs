@@ -51,6 +51,8 @@ license a must. Text 718-208-8286 or
 Email: abd67912@gmail.com
 
 
+14714 Av 5781 | July 23, 2021Looking For a Meaningful & Well Paid Job? Insurance office in BP is looking to hire. Great Pay + Benefits, Heimishe multi girl office, ongoing training & room to grow. Please call 718.303.2701 4801jobs@gmail.com
+
 
 Busy BP office seeking F/T female entry level employee. Good pay. Will train. Email Resume slcpny207@gmail.com
 
