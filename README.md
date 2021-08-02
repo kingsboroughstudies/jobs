@@ -43,6 +43,8 @@ Text 646-629-2308
 
 ## Office
 
+Looking for receptionist in a Brooklyn gown boutique. Help with booking appointments, register and customer service F/T or P/T Sun-Thurs. Please call Esti and lv msg 929.360.0779
+
 Counterperson/Office work F/T for
 busy car rental/body shop. Drivers
 license a must. Text 718-208-8286 or
