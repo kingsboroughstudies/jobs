@@ -2,6 +2,8 @@
 Jobs will be posted on this page.
 
 
+
+
 ## Quickbooks
 
 Looking for a Girl / lady to work remotely 20 Hours per week.
@@ -57,6 +59,17 @@ Email: abd67912@gmail.com
 Busy BP office seeking F/T female entry level employee. Good pay. Will train. Email Resume slcpny207@gmail.com
 
 ## Marketing 
+
+https://www.linkedin.com/in/tzivia-cohen/
+
+I am looking for a social media associate to begin immediately - part-time, flexible hours, work remotely.
+
+This is a great opportunity for someone looking for agency experience or just starting out in the marketing field.
+
+No professional experience is required, but must have working knowledge of Instagram.
+
+Please DM me with any leads!
+
 
 MARKETING COORDINATOR
 
