@@ -2,6 +2,9 @@
 Jobs will be posted on this page.
 
 
+## Store
+
+- https://classifieds.jewishpressads.com/stock-manager-4/
 
 
 ## Quickbooks
